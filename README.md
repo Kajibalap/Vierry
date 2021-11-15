@@ -1,2 +1,0 @@
-# Vierry
-Praktiku6
